@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on keeping me alive.
 
 - 📫 How to reach me:
->> Discord: Jonas L. | Minecoll_YT#0741
+> Discord: Jonas L. | Minecoll_YT#0741
